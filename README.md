@@ -1,4 +1,4 @@
-### **Dmytro K.**  
+### **Dmytro Hereha.**  
 **Senior Full-Stack Engineer | Expert in Web Application Development**  
 💻 **7+ Years of Experience | Full-Stack Mastery | Frontend & Backend Solutions**
 
